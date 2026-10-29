@@ -1,1 +1,2 @@
 Filmes:
+Karatê Kid
